@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @DerpyCatsss
+- 👋 Hi, I’m @Catish
 - 👀 I’m interested in gaming,vlogging,traveling,drawing,reading,arts & crafts
 - 🌱 I’m currently learning coding
 - 💞️ I’m looking to collaborate on nothing
